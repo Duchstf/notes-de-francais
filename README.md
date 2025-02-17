@@ -12,6 +12,10 @@ L’alphabet français comporte 26 lettres, comme en anglais, mais la prononciat
     
 ## Aléatoire
 
+### Anniversaire
+Le huit janvier mille neuf cent quatre-vingt-dix-neuf
+
+
 ### How do I ask "what is" something in French? 
 
 "Qu'est-ce que c'est ?"
