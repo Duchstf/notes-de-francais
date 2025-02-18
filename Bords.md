@@ -5,6 +5,7 @@
 * J'ai appris l'alphabet français.
 * J'ai commencé un nouveau cours de français sur TV5Monde. A1
 * J'ai regardé une vidéo sur l'alphabet français.
+* Une vidéo intéressante: https://www.youtube.com/watch?v=40IAXVvjSDA
 
 ### Lundi 17 Février, 2025
 
