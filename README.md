@@ -1,6 +1,11 @@
 # Notes de français
 Notes pour apprendre le français pour un débutant complet
 
+## Ressources
+
+* [Apprendre le Français avec TV5MONDE](https://apprendre.tv5monde.com/fr)
+* [Manuel de grammaire](French_Grammar.pdf)
+
 ## L’Alphabet Français
 
 L’alphabet français comporte 26 lettres, comme en anglais, mais la prononciation de certaines lettres diffère. Par exemple,
