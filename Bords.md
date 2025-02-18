@@ -1,5 +1,11 @@
 # Journal de bord
 
+### Mardi 18 Février, 2025
+
+* J'ai appris l'alphabet français.
+* J'ai commencé un nouveau cours de français sur TV5Monde. A1
+* J'ai regardé une vidéo sur l'alphabet français.
+
 ### Lundi 17 Février, 2025
 
 * J'ai commencé à prendre des notes sur l'alphabet français.
