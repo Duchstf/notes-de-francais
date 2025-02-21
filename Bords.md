@@ -2,6 +2,10 @@
 
 ### Mardi 18 Février, 2025
 
+* J'ai deux cours de français avec TV5MONDE
+
+### Mardi 18 Février, 2025
+
 * J'ai appris l'alphabet français.
 * J'ai commencé un nouveau cours de français sur TV5Monde. A1
 * J'ai regardé une vidéo sur l'alphabet français.
