@@ -1,5 +1,12 @@
 # Journal de bord
 
+### Lundi 24 Février, 2025
+
+* TV5MONDE: Se présenter, vocabulaire: les professsions
+* Les alphabets
+* Grammar
+* Culture
+
 ### Mardi 18 Février, 2025
 
 * J'ai deux cours de français avec TV5MONDE
